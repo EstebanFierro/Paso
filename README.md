@@ -1,0 +1,2 @@
+# Paso
+área de paso
